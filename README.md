@@ -1,3 +1,3 @@
 ![♡](https://i.postimg.cc/hvz2DRcf/kanamafu.jpg)
-⠀⠀⠀⠀⠀'' What represents the boundaries of mortal knowledge? Many people think it's the Genius Society, but I think it's myself. ''╭(∪.∪ )...zzz
+⠀⠀⠀⠀⠀'' ...I want you to be with me. When I talk with my mother, I want Kanade to be there too. ''╭(∪.∪ )...zzz
 ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀:⠀⠀[twitter](https://x.com/ethewitch)
