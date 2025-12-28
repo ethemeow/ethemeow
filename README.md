@@ -1,6 +1,6 @@
  ![♡](https://i.postimg.cc/B6dgfGSd/mafuyusaveskanade.gif)
  
-            '' Maybe it's okay as it is, i want to feel "alive" is it okay if I breathe? tell me ''╭(∪.∪ )...zzz
+            '' I'm sorry…. I'm so sorry…I'm so sorry for pulling you down here with me.. It's my fault, it's all my fault.. ''╭(∪.∪ )...zzz
 ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀:⠀⠀[twitter](https://x.com/ethewitch)
 
 
