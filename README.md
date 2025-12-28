@@ -1,4 +1,4 @@
- ![♡](https://i.postimg.cc/tJStGcns/milgram.jpg](https://i.postimg.cc/B6dgfGSd/mafuyusaveskanade.gif)
+ ![♡](https://i.postimg.cc/B6dgfGSd/mafuyusaveskanade.gif)
  
             '' Maybe it's okay as it is, i want to feel "alive" is it okay if I breathe? tell me ''╭(∪.∪ )...zzz
 ⠀⠀⠀⠀⠀ ⠀ ⠀⠀⠀:⠀⠀[twitter](https://x.com/ethewitch)
